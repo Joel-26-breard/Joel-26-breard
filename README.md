@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joel-26-breard, I'm twenty two years old, I studied Bachelor's in Economics and Business Administration, currently studying Software Engineer.
+- 👀 I’m interested in a job in Spain as a Real Estate Consultant, while I continue with my programming studies.
+- 🌱 I’m currently learning learning programming languages to be a Software Engineer.
+- 💞️ I’m looking to collaborate on Real Estate Consultant to get a job.
+- 📫 How to reach me joeleais18@gmail.com
